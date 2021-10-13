@@ -4,7 +4,7 @@ Disclaimer and disclosure for non-lawyer LeXpunk DAO members
 
 I am currently active in the following communities and have the following economic interests therein:
 
-WACEO
+-WACEO
 
 I do not hold any crytpo-assets.
 
